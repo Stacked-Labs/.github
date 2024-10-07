@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there fellow crypto casino degenerate and connoisseur 👋
 
 <!--
 
